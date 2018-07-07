@@ -10,7 +10,20 @@
     向大伙们展示一种全新的生活
     But all you've shown the folks around here is trouble
     但是你在这里展示的净是麻烦
-    
+    And you've only added misery to their strife
+    你只是给他们的冲突增添了痛苦
+    Your concern is not to help the people
+    你关心的才不是帮助人民
+    And I'll say again, though it's been often said
+    我得再说一遍，尽管人们常说
+    Your concern is just to bring discomfort, my friend
+    你的关心只会带来不适，我的朋友
+    And your policy is just a little red
+    你的政策只是有点红
+    Now, ain't I right (ain't he right)
+    现在，我对了吗？（他不对吗？）
+    (ain't he right)
+    （他不对吗？）
     
     
     
